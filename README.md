@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ayano0
+- 👀 I’m interested in coding and learing new ways to expand my knowlage on code.
+- 🌱 I’m currently learning coding and progaraming
+- 📫 How to reach me heidicordon3@gmail.com
+- 
